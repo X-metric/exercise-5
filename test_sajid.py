@@ -1,1 +1,1 @@
-Wir arbeiten jetzt zusammen an Git.
+Das ist eine geheime Nachricht. Bitte nicht teilen. :)
